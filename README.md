@@ -1,2 +1,0 @@
-# Nursing-Genius
-BEST NURSING SUMMARIES AND EXAMS
